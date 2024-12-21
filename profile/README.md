@@ -1,4 +1,4 @@
-## Hi there 👋 This is a space for sonam ai developers 🧑‍💻🧑‍💻
+## Hello 👋 Welcome to the home of Sonam AI developers 🧑‍💻🚀!
 
 <!--
 
